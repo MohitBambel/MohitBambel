@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MohitBambel
+- 👀 I’m interested in affiliate marketing/ drop shipping/ google ads
+- 🌱 I’m currently learning how to make money from these 3
+- 💞️ I’m looking to collaborate on drop shipping enterprises
+- 📫 To reach me (mail id- montybambel676@gmail.com)
